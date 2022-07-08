@@ -1,1 +1,0 @@
-This is an Learning Page | Note Taking | Library for anything **Anton Richardt**    
